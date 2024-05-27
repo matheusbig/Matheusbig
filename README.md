@@ -1,5 +1,5 @@
-## **1x1 não clica** 💀
+## **@mtzin.rlk, segue lá** 🌝
 
-**freestyle player**
+ - **freestyle player**
 
-**mobile 3 dedos**
+- **mobile 3 dedos**
